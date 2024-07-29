@@ -1,0 +1,3 @@
+## Inspiring Words by Dr. Pyare Lal Garg
+
+During the induction program at [GNE], students were fortunate to hear from Dr. Pyare Lal Garg, a renowned speaker and motivator. His speech focused on the theme of new beginnings and the importance of staying motivated throughout their academic journey. Dr. Garg emphasized the value of perseverance, dedication, and a positive mindset in overcoming challenges. His insightful words resonated deeply with the students, encouraging them to embrace their new journey with enthusiasm and confidence. The induction program was indeed a memorable start to their college life, thanks to Dr. Garg's inspiring address.
